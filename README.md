@@ -1,0 +1,2 @@
+# Extra-Income
+Raiyan Trade Corporation is a leading business-to-business media company and a primary facilitator of trade with Greater Bangladesh. More than 10,000 Local buyers, including 80 of the locally top 100 retailers, use these services to obtain product and company information to help them source more profitably from overseas supply markets. These services also provide suppliers with integrated marketing solutions to build corporate image, generate sales leads and win orders from buyers in more than 40+ District and territories in the country.
